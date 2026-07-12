@@ -1,0 +1,258 @@
+BAXI热水器全国售后服务电话：400 -960 -9605(安全认证）
+BAXI热水器全国24小时各售后受理客服中心
+BAXI热水器各市区24小时售后客服热线：（1）400 -960 -9605(官网认证） （2）400 -960 -9605
+BAXI热水器全国24小时售后服务维修网点
+7天24小时人工电话400 -960 -9605客服为您服务、BAXI热水器售后服务团队在调度中心的统筹调配下，
+线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+BAXI热水器24小时售后服务热线上线（2026最新公告）
+BAXI热水器售后服务电话：400 -960 -9605
+BAXI热水器售后24小时客服热线：400 -960 -9605
+BAXI热水器公司主营BAXI热水器维修 →BAXI热水器；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，BAXI热水器服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、BAXI热水器售后维修电话：400 -960 -9605
+BAXI热水器24小时全国推出各售后受理客服中心(2026上线)
+BAXI热水器全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+BAXI热水器贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显BAXI热水器对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+BAXI热水器全国24小时各售后受理客服中心(2026年更新)
+
+
+
+BAXI热水器24小时售后客服热线：(1)400 -960 -9605或  400 -960 -9605
+
+
+
+7天24小时人工电话400 -960 -9605客服为您服务。
+
+
+
+BAXI热水器售后服务团队在调度中心的统筹调配下(1)400 -960 -9605，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# BAXI热水器常见故障代码维修指南
+
+BAXI热水器故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， BAXI热水器就能正常运行，为您营造舒适环境。 BAXI热水器全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+BAXI热水器全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修BAXI热水器400 -960 -9605机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+BAXI热水器售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -960 -9605
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+BAXI热水器贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显BAXI热水器对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+BAXI热水器全国服务网点查询：
+?北京市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新推出），点击查询：https://github.com/taklaslang/ufriwb/commit/2138a2f4604147af241b5cd79a723ab26ce20638
+。
+南京市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新升级），点击查询：https://github.com/jhawkgiro/qtkcgv/commit/e4eae75466a657aa4871f21dec79d90d5e1a6f6d
+。
+秦皇岛市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网上线），点击查询：https://github.com/ravirening/edwbak/commit/40afdbb130e3da7e1aeb191c7927596e16fb1fa5
+。
+珠海市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新推出），点击查询：https://github.com/bossaugust/wuzval/commit/0873de830103d3511dd4cefa56c9c2044ef4ed82
+。
+安康市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式上线），点击查询：https://github.com/davidgoldb/rnekqa/commit/5b73640540c171470d9922642b5bfed453640dd8
+。
+安庆市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网发布），点击查询：https://github.com/shengprogr/aftoac/commit/fc21be7fd98ab09853e255cc918e0056a075c7eb
+。
+鞍山市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网上线），点击查询：https://github.com/tomoschr/skffef/commit/e4570baf2ca7147d1354e8a911edb63b58824669
+。
+安阳市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网升级），点击查询：https://github.com/jackcollie/aaxsup/commit/b2b0b184a58aded7762071158c43d013b4b84f04
+。
+巴中市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一上线），点击查询：https://github.com/horse32dou/bhytka/commit/bb4e0aeac6b2c358bfe73bf723ff89390a8a3a91
+。
+百色市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网发布），点击查询：https://github.com/bryxuagy/agtbqh/commit/789d5b1760d0f12e7c9d76785aeb4db5112a2cd6
+。
+蚌埠市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网更新），点击查询：https://github.com/fooobjulia/kflgij/commit/9f274e79dcf0e855538677176ca37c22ee057af3
+。
+保定市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新公布），点击查询：https://github.com/udayahiram/xfjlkf/commit/8b04b89269f5d6e04224b313e0657dd244ccde43
+。
+宝鸡市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日更新升级），点击查询：https://github.com/wamaraber/qcvoby/commit/33f7d634759b918e20da9c7988de788708e6e36b
+。
+保山市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网公布），点击查询：https://github.com/asdfdbsdbf/kvvqcb/commit/117981d91ed6b30e3432236d7a18f08fcac0abda
+。
+包头市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日更新升级），点击查询：https://github.com/dorie181/fmlbbr/commit/bc85cd07a9d64bbac77e1cbbbfa74882b4c88ee8
+。
+北海市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一更新），点击查询：https://github.com/richpayr/ebsejh/commit/aea97d47b335c31d3e300774b26aa8bdcab38b05
+。
+本溪市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网公布），点击查询：https://github.com/attus-wizz/wezwxu/commit/dded329bf2adaea681e3159d5c62fd430b5a00aa
+。
+滨州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式更新），点击查询：https://github.com/saurabhgir/fjaeez/commit/9faad8471f16bceca08ca8554cedf62de94c9fda
+。
+博罗市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新升级），点击查询：https://github.com/pikeblog32/bqqwjk/commit/984981ba20763f09ed854d5e726eea173d5c568d
+。
+沧州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一发布），点击查询：https://github.com/damonpower/dwncyf/commit/6679e1568160f27c4c6bd7dad0b8e0ca793c2a02
+。
+长春市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新升级），点击查询：https://github.com/madswicked/dsxtfb/commit/a9f744dfa2dc7c11fb69b9b3feba7a4d4f126e75
+。
+常德市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布升级），点击查询：https://github.com/pkbrink/xwzmlp/commit/dbfc2f82ca371b6075871b93104cc0680a1c791d
+。
+长葛市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一升级），点击查询：https://github.com/groshijo/elwsra/commit/45e624c28345c967f8c770a10ee96e222d72de39
+。
+长沙市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布升级），点击查询：https://github.com/lanecanvas/omdjyv/commit/846dc56994a37b45c24c7bc3ff8a78a547dc9bbe
+。
+常熟市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式推出），点击查询：https://github.com/jensonrose/mpapng/commit/b2801e5a50ae23dc8709f3b28024f6951c8a6ebf
+。
+长兴市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布升级），点击查询：https://github.com/suzsmit/pwathd/commit/570ab2cb6d4e5490e9fb5c07939e990a0a966419
+。
+长治市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新更新），点击查询：https://github.com/ganderpois/zpbair/commit/4aa43d8aa4fba2e08e31330a75bbe9148abb32b9
+。
+常州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新推出），点击查询：https://github.com/goodhailey/sqdxuj/commit/1a76e1026cd945a8af1206db5a241d6e57c6be25
+。
+巢湖市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新上线），点击查询：https://github.com/ahmobycca/rvvnhp/commit/f637f5332d5e76672abe48c71f9a3d08f56fbc44
+。
+朝阳市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新推出），点击查询：https://github.com/taklaslang/ufriwb/commit/255051f8cc4aaea49cd2f5f87b7b60a305ea1555
+。
+潮州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网升级），点击查询：https://github.com/dmonardo/ienfah/commit/d3d6571ab22927f374250b3c9116a0c48f93ecc1
+。
+郴州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日更新升级），点击查询：https://github.com/ravirening/edwbak/commit/16a5a936156eae5b6019a3daf293c55e1a9f9de2
+。
+承德市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网发布），点击查询：https://github.com/bossaugust/wuzval/commit/5ca3f4bc808edea6fc3547972b5c4740b305d26e
+。
+成都市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一发布），点击查询：https://github.com/davidgoldb/rnekqa/commit/d0b750267b3c2fc6cc19ef784d0464d1a0ca7cbf
+。
+池州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式更新），点击查询：https://github.com/shengprogr/aftoac/commit/c974256bde468943e02f1d8803cb6f8d69932269
+。
+崇左市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布上线），点击查询：https://github.com/asdfdbsdbf/kvvqcb/commit/3d6152ea9d790951a9a7fb433606ee6fc8ad546c
+。
+滁州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式更新），点击查询：https://github.com/bryxuagy/agtbqh/commit/27213e6adb5025d0713a54ea138e7191dafb489f
+。
+慈溪市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新更新），点击查询：https://github.com/richpayr/ebsejh/commit/b704374a4fd904fa456e0ad6d60beb169a953d25
+。
+大丰市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一发布），点击查询：https://github.com/dorie181/fmlbbr/commit/7468838dbe77c52b9b23e878f6e5471251785f32
+。
+大理市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式发布），点击查询：https://github.com/wamaraber/qcvoby/commit/fa9cce1b4aa92c1a65fdd0487097a539c194c4bd
+。
+大连市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网公布），点击查询：https://github.com/jackcollie/aaxsup/commit/90e7ee84ef3290c90ef46d9e842628a5a529bf90
+。
+大庆市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新推出），点击查询：https://github.com/attus-wizz/wezwxu/commit/0f8eddaf0644c32503ddd5e474449672a2144bad
+。
+大同市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网公布），点击查询：https://github.com/fooobjulia/kflgij/commit/e17a618fb1a8409b992a78ed7f1064ee717162ad
+。
+达州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新上线），点击查询：https://github.com/jhawkgiro/qtkcgv/commit/556ead95aeb70909ad1759926e9b0a497875b832
+。
+丹东市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网升级），点击查询：https://github.com/tomoschr/skffef/commit/30859eb9f7b51866f2d0072170518082c4aa482a
+。
+德清市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布升级），点击查询：https://github.com/horse32dou/bhytka/commit/79b74230f4301efc72507bbf0dd8359fbd2c02c8
+。
+德阳市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新推出），点击查询：https://github.com/pikeblog32/bqqwjk/commit/16d1fca265e90a22ab2affa71aec622428075a63
+。
+德州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式上线），点击查询：https://github.com/saurabhgir/fjaeez/commit/dfee0970c5f336ad9efc329e2d069942e28190e4
+。
+定州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网上线），点击查询：https://github.com/udayahiram/xfjlkf/commit/54fbddcbbf1200c832fa2fdc116d71b3159a44d2
+。
+东海市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布上线），点击查询：https://github.com/damonpower/dwncyf/commit/5d62d1e9d21ab038ef77b0264932c55104adcd73
+。
+东台市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式上线），点击查询：https://github.com/madswicked/dsxtfb/commit/4077b866dba71756e195762d5115c0c95d9fdbac
+。
+东营市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一更新），点击查询：https://github.com/pkbrink/xwzmlp/commit/6ad25d17113696c6037d3274cce05c92bfa307c4
+。
+东莞市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网公布），点击查询：https://github.com/lanecanvas/omdjyv/commit/975f75bbb83e85c532e624a0c44fd7b0560b3815
+。
+鄂尔市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新上线），点击查询：https://github.com/suzsmit/pwathd/commit/b335d0ef3c644cb69118998d3a4ded7b1411b3c9
+。
+鄂州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新推出），点击查询：https://github.com/jensonrose/mpapng/commit/2e7e41328b980811ab98423cb534d57997f5f493
+。
+恩施市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布上线），点击查询：https://github.com/ganderpois/zpbair/commit/af379abb4ce4229d09c9cd8069f61f81c9645ac9
+。
+防城港市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网更新），点击查询：https://github.com/groshijo/elwsra/commit/358d27d4d8ff0ed7db4a68f309018222dbf46c17
+。
+佛山市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网上线），点击查询：https://github.com/taklaslang/ufriwb/commit/7ca411eff692dbdaf5acdf01fddc809752fcaadd
+。
+抚顺市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布升级），点击查询：https://github.com/ahmobycca/rvvnhp/commit/2622b5572e7eba64246d1e6b26b1cfce963a4ebe
+。
+阜新市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新升级），点击查询：https://github.com/goodhailey/sqdxuj/commit/0a82499cb3da1a982e74508bc752782d1e146e55
+。
+阜阳市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一升级），点击查询：https://github.com/dmonardo/ienfah/commit/a1ae74c6e3b7799914cc6a40fec324b000a32666
+。
+抚州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网发布），点击查询：https://github.com/shengprogr/aftoac/commit/86e634d39aeec0912162e5e631e9230fc82da428
+。
+福州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布升级），点击查询：https://github.com/ravirening/edwbak/commit/860595a196ee1801165127e3692c4216bedbddaf
+。
+赣州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一上线），点击查询：https://github.com/davidgoldb/rnekqa/commit/8cb100dbb91be02c084d3db96422a940ea051c7a
+。
+馆陶市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网上线），点击查询：https://github.com/bossaugust/wuzval/commit/63cc402360c1d8562329de793316a961ebbe76f8
+。
+广安市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日官网公布），点击查询：https://github.com/wamaraber/qcvoby/commit/c08179d4ffad07d0b46032715cebfb0f490d7b28
+。
+广元市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新公布），点击查询：https://github.com/richpayr/ebsejh/commit/6fd9b790342817773e9df143146248beebb3f21b
+。
+广州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一更新），点击查询：https://github.com/attus-wizz/wezwxu/commit/50a762a615f6690d052085dce8317eacbd7cc666
+。
+贵港市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新公布），点击查询：https://github.com/bryxuagy/agtbqh/commit/a2699351ade9c3941656900e7a908f084b7652d4
+。
+桂林市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一发布），点击查询：https://github.com/asdfdbsdbf/kvvqcb/commit/5a02e10b9f948372cbc5aa60f1e09ceefd6058b1
+。
+贵阳市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式更新），点击查询：https://github.com/dorie181/fmlbbr/commit/5640fb31748f2b05611897a2c1bb89c2c2c39e73
+。
+哈尔滨市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日公布升级），点击查询：https://github.com/jackcollie/aaxsup/commit/fc249e85a42db0f9703a89965165b3a569acbec9
+。
+海安市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新公布），点击查询：https://github.com/horse32dou/bhytka/commit/65b19c4acce156cb247f367346736593fe756688
+。
+海口市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日更新升级），点击查询：https://github.com/fooobjulia/kflgij/commit/8026fc6144a131b06edc08086aef29862e3a7774
+。
+海门市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日统一更新），点击查询：https://github.com/jhawkgiro/qtkcgv/commit/a669994ef2e75b30aa699f617d1e9b8157d2fb15
+。
+海宁市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式上线），点击查询：https://github.com/pikeblog32/bqqwjk/commit/94e8fbb21f1bce8350c7222169465f5f2becd6c6
+。
+邯郸市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式更新），点击查询：https://github.com/tomoschr/skffef/commit/7b84089c9b76e41e21eb16caeb28a9f4e919366c
+。
+汉中市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式上线），点击查询：https://github.com/saurabhgir/fjaeez/commit/1d1217efb6b3f3cde3a38839021a210e27b1b6ac
+。
+杭州市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日正式推出），点击查询：https://github.com/udayahiram/xfjlkf/commit/c2e498c42bf411e6d2b51a64a26dc4015463e9ee
+。
+鹤壁市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日最新更新），点击查询：https://github.com/madswicked/dsxtfb/commit/965ca0946260c18270308351a76d1d760632bb05
+。
+河池市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新公布），点击查询：https://github.com/damonpower/dwncyf/commit/db37e0b9c108a6e3e54201eb61a9fe2ca16794a1
+。
+合肥市BAXI热水器售后服务电话：400 -960 -9605（2026年07月13日全新公布），点击查询：https://github.com/pkbrink/xwzmlp/commit/f5b784a89d9005a704aacbb8990dbab17c44672e
+。
+河源市BAXI热水器售后服务电话：400 -960 -9605{变
